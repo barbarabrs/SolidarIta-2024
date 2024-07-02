@@ -1,1 +1,0 @@
-# SolidarIta 2024
